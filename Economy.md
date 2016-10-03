@@ -1,4 +1,4 @@
-### Economy
+### Chapter 01. Economy
 
 When I wrote the following pages,or rather the bulk of them,I lived alone,in the woods,a mile from any neighbor,in a house which I have built myself,
 on the shore of Walden Pond,in Concord,Massachusetts,and earned my living by the labor of my hands only.
