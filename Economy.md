@@ -286,3 +286,45 @@ Be sure that you give the poor the aid they most need,though it be your example 
 
 Philanthropy is almost the only virtue which is sufficiently appreciated by mankind.Nay,it is greatly overrated;and it is our selfishness which overrates it.A robust poor man,one sunny day here in Concord,praised a fellow--townsman to me,because,as he said,he was kind to the poor;meaning himself.
 The kind uncles and aunts of the race are more esteemed that its true spiritual fathers and mothers.I once heard a reverend lecturer on England,a man of learning and intelligence,after enumerating her scientific,literary,and political worthies,Shakespeare,Bacon,Cromwell,Milton,Newton,and others,speak next of her Christian heroes,whom,as if his profession required it of him,he elevated to a place far above all the rest,as the greatest of the great.They were Penn,Howard,and Mrs.Fry.Every one must feel the falsehood and cant of this.The last were not England's best men and women;only,perhaps,her best philanthropists.
+
+I would not subtract anything from the praise that is due to philanthropy,but merely demand justice for all who by their lives and works are a blessing to mankind.I do not value chiefly a man's uprightness and benevolence,which are,as it were,his stem and leaves.Those plants of those greenness withered we make herb tea for the sick serve but a humble use,and are most employed by quacks.I want the flower and fruit of a man;that some fragrance be wafted over from him to me,and some ripeness flavor our intercourse.**His goodness must not be partial and transitory act,but a constant superfluity,which costs him nothing and of which he is unconscious.** This is a charity that hides a multitude of sins.The philanthropist too often surrounds mankind with the remembrance of his own castoff griefs as an atmosphere,and calls it sympathy.We should impart our courage,and not our despair,our health and ease,and not our disease,and take care that this does not spread by contagion.From what southern plains comes up the voice of wailing?Under what latitudes reside the heathen to whom we would send light?Who is that intemperate and brutal man whom we would redeem?If anything ail a man,so that he does not perform his functions,if he have a pain in his bowels even for that is the seat of sympathy he forthwith sets about reforming the world.Being a microcosm himself,he discovers and it is a true discovery,and he is the man to make it--that the world has been eating green apples;to his eyes,in fact,the globe itself is a great green apple,which there is danger awful to think of that the children of men will nibble before it is ripe;and straightway his drastic philanthropy seeks out the Esquimau and the Patagonian,and embraces the populous Indian and Chinese villages;and thus,by a few years of philanthropic activity,the powers in the meanwhile using him for their own ends,no doubt,**he cures himself of his dyspepsia,the globe acquires a faint blush on one or both of its cheeks,as if it were beginning to be ripe,and life loses its crudity and is once more sweet and wholesome to live.** *I never dreamed of any enormity greater than I have committed.I never knew,and never shall know,a worse man than myself.*
+
+I believe that what so saddens the reformer is not his sympathy with his fellows in distress,but,though he be the holiest son of God,is his private ail.Let this be righted,let the spring come to him,the morning rise over his couch,and he will forsake his generous companions without apology.My excuse for not lecturing against the use of tobacco is,that is a penalty which reformed tobacco chewers have to pay;though there are things enough I have chewed which I could lecture against.If you should ever be betrayed into any of these philanthropies,do not let your left hand know what your right hand does,for it si not worth knowing.Rescue the drowning and tie your shoestrings.Take your time,and set about some free labor.
+
+Our manners have been corrupted by communication with the saints.Our hymn books resound with a melodious cursing of God and enduring Him forever.One would say that even the prophets and redeemers had rather consoled the fears than confirmed the hopes of man.There is nowhere recorded a simple and irrepressible satisfaction with the gift of life,any memorable praise of God.All health and success does me good,however far off and withdrawn it may appear;all disease and failure helps to make me sad and does make me evil.however much sympathy it may have with me or I with it.If,then,we would indeed restore mankind by truly Indian,botanic,magnetic,or natural means,let us first be as simple and well as Nature ourselves,dispel the clouds which hang over our own brows,and take up a little life into our pores.**Do not stay to be an overseer of the poor,but endeavor to become one of the worthies of the world.**
+
+I read in the Gulistan,or Flower Garden,of Sheik Sadi of Shiraz,that "they asked a wise man,saying:of the many celebrated trees which the Most High God has created lofty and umbrageous,they call none azad,or free,excepting the cypress,which bears no fruit;what mystery is there in this?He replied,Each has its appropriate produce,and appointed season,during the continuance of which it is fresh and blooming,and during their absence dry and withered;to neither of which states is the cypress exposed,being always flourishing;and of this nature are the azads,or religious independents,Fix not thy heart on that which is transitory;for the Dijlah,or Tigris,will continue to flow through Bagdad after the race of caliphs is extinct:if thy hand has plenty,be liberal as the date tree;but if it affords nothing to give away,be an azad,or free man,like the cypress."
+
+COMPLEMENTAL VERSES
+
+The Pretensions of poverty
+
+Thou dost presume too much,poor needy wretch,
+To claim a station in the firmament
+Because thy humble cottage,or thy tub,
+Nurses some lazy or pedantic virtue
+In the cheap sunshine or by shady springs,
+With roots and pot-herbs;where thy right hand,
+Tearing those humane passions from the mind,
+Upon whose stocks fair blooming virtues flourish,
+Degradeth nature,and benumbeth sense,
+And,Gorgon-like,turns active men to stone.
+We not require the dull society
+Of your necessitated temperance,
+Or that unnatural stupidity
+That knows nor joy nor sorrow;nor your forc'd
+Falsely exalted passive fortitude
+Above the active.This low abject brood,
+That fix their seats in mediocrity,
+Become your servile minds;but we advance
+Such virtues only as admit excess,
+Brave,bounteous acts,regal magnificence,
+All seeing prudence,magnanimity
+That knows no bound,and that heroic virtue
+For which antiquity hath left no name,
+But patterns only,such as Hercules,
+Achilles,Theseus.Back to thy loath'd cell;
+And when thou seest the new enlightened sphere,
+Study to know but what those worthies were.
+
+T.CARTEW
