@@ -18,7 +18,7 @@ My dear fingers, it is show time, enjoy typing.:-)
 
 ### [Chapter 05. Solitude](Solitude.md)
 
-### [Chapter 06. Vistors](Vistors.md)
+### [Chapter 06. Visitors](Visitors.md)
 
 ### [Chapter 07. The Bean Field](Thebeanfield.md)
 
