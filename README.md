@@ -4,7 +4,7 @@
 
 Being a little shame of myself, I decide to type the whole book. Besides, I have found the [*audiobook*](https://archive.org/details/walden_librivox) of it.For me, it is like a background music when I am typing.Hope you enjoy it.
 
-My dear fingers, it is show time, enjoy typing.:-)
+My dear fingers, it is show time, enjoy typing:-)
 
 ## Contents
 
@@ -43,3 +43,5 @@ My dear fingers, it is show time, enjoy typing.:-)
 ### [Chapter 17. Spring](Spring.md)
 
 ### [Chapter 18. Conclusion](Conclusion.md)
+
+### [Chapter 19. On the duty of civil disobedience](Civildisobedience.md)
